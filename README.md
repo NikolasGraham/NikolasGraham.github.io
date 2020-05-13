@@ -1,3 +1,0 @@
-## temp
-
-nikolasgraham.github.io
